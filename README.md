@@ -1,5 +1,8 @@
 ## Портфолио: Тестировщик программного обеспечения
+  **![email](https://texterra.ru/bitrix/templates/texterra/img/image/mail-icon.svg "lengayva2@gmail.com") :<lengayva2@gmail.com>**  
+ **[Резюме]()** 
 
+  
 ## Обо мне 
 Здравствуйте!
 <br>
