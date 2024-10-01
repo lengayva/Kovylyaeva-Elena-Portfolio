@@ -1,6 +1,6 @@
 ## Портфолио: Тестировщик программного обеспечения
   **![email](https://texterra.ru/bitrix/templates/texterra/img/image/mail-icon.svg "lengayva2@gmail.com") :<lengayva2@gmail.com>**  
- **[Резюме](https://disk.yandex.ru/i/AvvtKIjTVF2puQ)** 
+ **[Резюме](https://disk.yandex.ru/i/krHtYzT_Bs_rnA)** 
 
   
 ## Обо мне 
